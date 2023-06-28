@@ -1,0 +1,2 @@
+# nonstoplikik
+homochik ta bihemya 
